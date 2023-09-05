@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+ola me chamo gabriel e criei essa conta para aprender a mexer mais com o alura e desenvolver sites eapps
+ contato gabriel.bueno.machado@escola.pr.gov.br
